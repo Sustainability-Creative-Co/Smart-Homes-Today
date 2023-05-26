@@ -1,1 +1,1 @@
-# Smart-Homes-Today
+# Smart Homes Today
